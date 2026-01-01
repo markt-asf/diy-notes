@@ -1,1 +1,1 @@
-[Aqualisa Quartz Shower Digital Divert](aqualisa-shower.md)
+[Aqualisa Quartz Shower Digital Diverter](aqualisa-shower.md)
